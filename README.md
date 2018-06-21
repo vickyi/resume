@@ -11,4 +11,4 @@
 
 如果有什么想法，可以与我联系。
 
-`gmail`:dolphnzhang1987@gmail.com
+`gmail`:dolphinzhang1987@gmail.com
